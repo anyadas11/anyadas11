@@ -1,4 +1,4 @@
-### Anya Dasgupta
+###
 
 <!--
 **anyadas11/anyadas11** 
